@@ -1,0 +1,1 @@
+Artículo 2º: Constitúyase el plano del partido de nuestra ciudad que aportará los instrumentos técnico-políticos del Gobierno de nuestro municipio para la identificación e implementación de las principales estrategias de ordenamiento y mejoramiento territorial y ambiental.

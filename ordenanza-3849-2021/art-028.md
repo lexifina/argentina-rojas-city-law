@@ -1,0 +1,1 @@
+Artículo 28º: A los efectos de establecer el régimen de licencias para el personal incluido en los artículos 13° y 14º de la presente y para el personal no comprendido en la Ley Nº 14.656, con excepción del adherido a la Carrera Profesional Hospitalaria, se regirá por las disposiciones contenidas en dicha norma legal.

@@ -1,0 +1,2 @@
+Artículo 42º: Otórguese una Bonificación por TAREAS CRÍTICAS destinada los agentes que realicen tareas de calle (Inspectores de Tránsito, de Industrias y Comercios). También les corresponderá la presente bonificación a los agentes que desempeñen tareas como oficiales Notificadores de la Municipalidad. La Bonificación mensual correspondiente será de hasta un 25% (veinticinco por ciento) del sueldo básico de la categoría que reviste el agente.
+Disposiciones Varias:

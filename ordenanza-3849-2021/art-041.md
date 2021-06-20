@@ -1,0 +1,1 @@
+Artículo 41º: Otórguese una bonificación por Tareas Específicas que será abonada a los agentes que desempeñen probadas tareas en áreas determinadas. Dicha bonificación se fijará por decreto del Departamento Ejecutivo y hasta un máximo de setenta por ciento (70%) del sueldo básico del agente y estará sujeta a aportes y contribuciones previsionales y/o asistenciales.

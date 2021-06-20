@@ -1,0 +1,1 @@
+Artículo 24º: El profesional a cargo de la Dirección de Planeamiento y Obras Particulares gozará de una bonificación por Bloqueo de Título de hasta el cien por ciento (100 %) del sueldo básico.-

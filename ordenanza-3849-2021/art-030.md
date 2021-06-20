@@ -1,0 +1,1 @@
+Artículo 30º: El agente que se desempeñe como cajero o que habitualmente maneje fondos, ya sea que se trate de agentes incluidos en la Ley 14.656 o no, podrá percibir una compensación mensual en concepto de fallo de caja de hasta el 100% sobre el sueldo básico del agente, la que será determinada por Decreto del Departamento Ejecutivo.

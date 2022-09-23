@@ -1,0 +1,11 @@
+Ordenanza Nº3906/21
+Ordenanza Nº 3906/21
+Rojas, 16/12/2021
+La necesidad de regular la habilitación para el funcionamiento de las Salas de Teatro Independiente, Centros Culturales y Espacios Culturales dentro del partido de Rojas.-
+Considerando: Que el derecho a la cultura está consagrado por la Declaración Universal de Derechos Humanos, en su art. 27. A su vez, la Constitución Nacional garantiza la libre asociación, y referencia a los espacios culturales en su art. 14 y 75. La ley Nacional de Teatro Nº 24.800 establece la atención especial a los espacios para el desarrollo de las actividades culturales, en su art. 4. Y específicamente la Constitución de la Provincia de Buenos Aires declara a la cultura como derecho humano y reconoce a las actividades culturales y garantiza su protección en los art. 11, 41, 44 y 198.-
+Que las Salas de Teatro Independiente, Centros Culturales y Espacios Culturales Alternativos llevan adelante una función social como centros de trabajo, como desarrollo en la formación de artistas y como promoción de valores y de identidad de la comunidad.-
+Que la Legislatura Bonaerense sancionó la Ley Nº 15.302, la cual conforme a su art. Nº1, tiene por objeto regular la habilitación para el funcionamiento Salas de Teatro Independiente, Centros Culturales y Espacios Culturales Alternativos dentro del territorio de la provincia de Buenos Aires.-
+Que entendemos que la presente regulación está destinada a Salas de Teatro Independiente, Centros Culturales y Espacios Culturales Alternativos de hasta trescientas (300) localidades, en virtud de que se establecen condiciones indispensables y mínimas de seguridad e higiene y ello resulta incompatible con espacios donde se realicen eventos multitudinarios.-
+Que la presente tiene por finalidad facilitar la accesibilidad al marco regulatorio de aquellos espacios independientes de menor capacidad de gestión (hasta trescientas localidades), como destinatarios directos del acompañamiento del Estado provincial, sosteniendo un espíritu de protección hacia los espacios más vulnerables.-
+Que la ley 15.302 expresamente invita a los Municipios a adherir a la misma, creando un Registro Permanente de espacios, en donde deberán inscribirse las Salas de Teatro Independiente, Centros Culturales y Espacios Culturales Alternativos.-
+ORDENANZA

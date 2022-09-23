@@ -1,0 +1,1 @@
+Artículo 20º: Otórguese a partir del 1º de Enero de 2022, al personal profesional adherido a la Carrera Médico Hospitalaria que reviste en este Municipio una bonificación en concepto de Bonificación por Refrigerio, que consistirá en hasta un DIEZ PORCIENTO (10.00%) del sueldo básico del profesional.

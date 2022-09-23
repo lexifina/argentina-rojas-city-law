@@ -1,0 +1,1 @@
+Artículo 43º: Facúltese al Departamento Ejecutivo a incrementar los valores de las Tasas, Derechos, Contribuciones y/o Recuperos, mediante Decreto debidamente fundado, establecidos en la Ordenanza Fiscal e Impositiva vigente, a partir del 01 de Julio de 2022, en hasta un CINCUENTA por ciento (50%), sobre los valores vigentes al 30 de Junio de 2022.

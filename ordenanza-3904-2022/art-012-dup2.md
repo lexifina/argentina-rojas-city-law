@@ -1,0 +1,25 @@
+Artículo 12º: Fíjese a partir del primero de Enero de 2022, para el personal incluido en el artículo anterior, la Bonificación por Antigüedad, en base a un porcentaje sobre las remuneraciones, de acuerdo al siguiente detalle:
+Porcentaje
+A partir de 1 año de antigüedad
+21.00%
+A partir de 2 años de antigüedad
+24.00%
+A partir de 4 años de antigüedad
+33.00%
+A partir de 7 años de antigüedad
+43.00%
+A partir de 10 años de antigüedad
+54.00%
+A partir de 12 años de antigüedad
+64.00%
+A partir de 15 años de antigüedad
+74.00%
+A partir de 17 años de antigüedad
+84.00%
+A partir de 20 años de antigüedad
+105.00%
+A partir de 22 años de antigüedad
+115.00%
+A partir de 24 años de antigüedad
+125.00%
+Personal Superior y Jerárquico

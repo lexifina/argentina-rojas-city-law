@@ -1,0 +1,21 @@
+Ordenanza Nº4085
+Ordenanza Nº 4085
+Rojas, 28/11/2024
+VISTO: La creciente problemática de la circulación de vehículos, motocicletas y afines con caños escapes libres y/o modificados, y la necesidad de sumar medidas a los efectos de hacer más efectivo el control del ruido nocivo que genera la circulación de estos vehículos en nuestros vecinos; así como también la circulación de motocicletas sin chapa patente por el distrito.-
+CONSIDERANDO: Que de acuerdo a lo establecido en la ley Nacional 24.449, ley Provincial 13.927, concordantes y modificatorias, resulta autoridad competente y de aplicación en lo referente a la prevención y control de tránsito la autoridad municipal.-
+Que en el Artículo 2º de la ley 24.449 se establece que “La autoridad local correspondiente podrá disponer por vía de excepción, exigencias distintas a las de esta ley y su reglamentación, cuando así lo impongan fundadamente específicas circunstancias locales. Podrá dictar también normas exclusivas, siempre que sean accesorias a las de esta ley y se refieran al tránsito y estacionamiento urbano, al ordenamiento de la circulación de vehículos de transporte, de tracción a sangre y a otros aspectos fijados legalmente.-
+Que el Artículo 72, 72 bis de la ley 24.449 y modificatoria 23.363, Artículo 37 y 38 de la Ley 13.927, confiere la potestad a la autoridad de aplicación de retener el vehículo, licencia o persona, en aquellos casos que se encuentre en peligro la seguridad de las personas y bienes, taxativamente determinados en la norma.-
+Que el artículo 77 de la ley 24.449 considera falta grave las conductas que afecten por contaminación el medio ambiente.-
+Que al carecerse de una disposición taxativa respecto al nivel permitido de sonoridad y, ante el auge de los caños de escape que no condicen con los provenientes de fábrica y la proliferación de equipos de emisión de música de gran potencia en diferentes rodados, que producen ruidos innecesarios, excesivos y contaminación sonora, afectando gravemente la tranquilidad de la población y la salud auditiva, física y psíquica de la misma.-
+Que la provocación de estos ruidos es intolerable e injustificable para los vecinos dados su intensidad, por lo que resulta necesario generar normas de convivencia que sean respetadas por todos.-
+Que la calificación del nivel del ruido debe realizarse por medio de una evaluación con instrumentos técnicos que permitan establecer la medición con el simple accionar de quien lo manipula.-
+Que para aplicar el debido control resulta adecuado legislar, dotando del marco legal adecuado a quienes actúan con el poder de policía en el ámbito municipal.-
+Que la LOM establece en el inciso 17 del Artículo 27° que corresponde al Concejo Deliberante reglamentar “La prevención y eliminación de las molestias que afecten la tranquilidad, el reposo y la comodidad de la población, en especial las de origen sonoro y lumínico, así como las trepidaciones, la contaminación ambiental y de los cursos de agua y el aseguramiento de la conservación de los recursos naturales.-
+Que es función deliberativa el dictado del presente instrumento legal conforme el art. 27 inc 18 de la LOM.- Que en particular, el Artículo 24° de la Constitución Provincial, autoriza a las autoridades municipales a allanar domicilios por razones de salubridad pública.-
+Que, la falta de identificación registral (chapa patente) en una moto vehículo o un automotor, no solo constituye una falta de tipo de tránsito, sino que preestablece un clima de inseguridad, no solo para el propietario y/o tenedor del moto vehículo, sino para la comunidad en general, teniendo en cuenta el índice de hurtos y sustracciones producidas en estos últimos tiempos y la intencionalidad de evitar ser identificados al cometer alguna infracción.-
+Que, el Estado asume la obligación Constitucional de protección no solo a las personas sino a su patrimonio, para lo cual debe de crear el ordenamiento jurídico apropiado para tal fin.-
+Que, en este marco, el Estado cuenta con el poder de policía y de contralor, no solo para coaccionar, tipificando el hecho, sino para prevenir delitos, en el caso del secuestro preventivo de moto vehículo o automotores, sin su identificación.-
+Por todo ello el Honorable Concejo Deliberante de Rojas, en uso de sus facultades y atribuciones, sanciona la siguiente
+ORDENANZA
+Capítulo 1
+Del Alcance

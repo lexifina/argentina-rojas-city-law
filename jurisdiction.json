@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-rojas",
+  "code": "AR-B-ROJAS",
+  "name": "Rojas",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-rojas-city-law",
+  "build": "built: municipal ordinances (205 ordinances, 205 versions) from https://sibom.slyt.gba.gob.ar/cities/105",
+  "language": "es",
+  "sources": 1
+}
